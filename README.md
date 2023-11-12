@@ -1,0 +1,1 @@
+Bursa'da Masörler, vücut anatomisi ve fizyolojisi konusunda eğitilmiş uzmanlardır. MASÖR BURSA Müşterilerin ihtiyaçlarına özel tedavi planları oluştururlar ve sağlığınızı ön planda tutarlar. "https://mmasor.com/index.php/masor-bursa/">MASÖR BURSA</a> aynı zamanda etik kurallara bağlıdır ve müşteri gizliliğini her zaman korurlar.
